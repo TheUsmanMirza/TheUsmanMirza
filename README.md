@@ -7,3 +7,4 @@
 - 💬 Ask me about anything related to tech. I love to talk about new technologies.
 - 📫 How to reach me: Email/Skype: usmanbashir.mirza@gmail.com
 - ⚡  Netflix and Code.
+
